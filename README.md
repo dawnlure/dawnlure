@@ -3,7 +3,7 @@
 
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="1088" height="1088" alt="image" src="https://github.com/user-attachments/assets/41c68a7a-913e-4cca-86a2-d90c172d2bc7" />
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="1561" height="846" alt="Screenshot 2026-08-29 142719" src="https://github.com/user-attachments/assets/3aa5dd58-fed7-4ac7-9e96-2e8614876f52" />
 
                                      
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
